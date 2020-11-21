@@ -19,6 +19,7 @@
         
   8.  You can use whipped cream to frost the cake or if you have cream cheese available, 
       then you can make a cream cheese frosting using that, butter, icing sugar and vanilla extract.
+      
   9.  Decorate using white chocolate chips or shavings, cherries to make it look more
       beautiful.
 
